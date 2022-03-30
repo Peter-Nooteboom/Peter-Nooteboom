@@ -1,2 +1,2 @@
-![Peter Nooteboom](https://imgur.com/gallery/uZeGRli)
+![Peter Nooteboom](https://i.imgur.com/YdfImzT.png)
 ### 👋: Hi, my name is Peter Nooteboom
