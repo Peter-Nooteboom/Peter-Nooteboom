@@ -1,4 +1,4 @@
-![Peter Nooteboom](https://i.imgur.com/YdfImzT.png)
+![Peter Nooteboom](https://i.imgur.com/ua5MCIw.png)
 
 Hello! My name is Peter Nooteboom 👋🏽
 
